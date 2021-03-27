@@ -1,2 +1,2 @@
 # MoonjeongKim01.github.io
-MJ's Homepage
+MJ's portfolio
